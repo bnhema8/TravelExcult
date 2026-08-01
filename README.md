@@ -1,2 +1,0 @@
-# TravelExcult
-Explore. Experience. Connect.
